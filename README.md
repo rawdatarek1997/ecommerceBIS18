@@ -12,5 +12,5 @@ Hasnaa Fathy 1516171
 
 Abdelrahman Salah 1516319
 
-Thanks for your effort and time, We hope that خعق project won your admiration :)
+Thanks for your effort and time, We hope that our project won your admiration :)
 
